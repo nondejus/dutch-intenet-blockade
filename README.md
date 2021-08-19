@@ -1,2 +1,0 @@
-# dutch-intenet-blockade
-2014-2021
